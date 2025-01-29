@@ -1,0 +1,2 @@
+# monsterracescriptmadebyanthu
+hi
